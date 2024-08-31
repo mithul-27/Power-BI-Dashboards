@@ -2,4 +2,5 @@
 
 ## Elections 2024 Ad spend analysis
 
-![image](https://github.com/user-attachments/assets/7159fc3d-5436-4aba-9ce0-24cc443a0913)
+![image](https://github.com/user-attachments/assets/0a71a590-a011-4ca8-8ab6-83b7d773d326)
+
